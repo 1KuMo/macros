@@ -1,5 +1,5 @@
 # macros
-Here are the macros
+Here are my macros
 
 You can use them for Minecraft for example, or any other game.
 ONLY FOR EDUCATIONAL AND LEGAL PURPOSES ( please ) 
